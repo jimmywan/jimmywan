@@ -1,5 +1,3 @@
-http://peacealliance.org/condemn-election-violence
-
 <!--
 ### Hi there 👋
 
